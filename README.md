@@ -23,5 +23,5 @@ I turn organic content into measurable business results, in Arabic and English.
 
 ## Contact
 - LinkedIn: https://www.linkedin.com/in/mohamed123ali/
-- Email: ma7amed.3lii@gmail.com
-- Portfolio: https://ma7amed3lii.tabbio.com
+- Email: mo.wahba18@gmail.com
+- Portfolio: https://app.notion.com/p/Mohamed-Ali-Content-Strategist-Social-Media-Manager-401984b64f4b8169b97fdd5e69964c4a?source=copy_link
