@@ -1,16 +1,27 @@
-## Hi there 👋
+# Hi, I'm Mohamed Wahba
 
-<!--
-**mo3li/mo3li** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Social Media Account Manager & Content Strategist** based in Dubai, UAE.
+I turn organic content into measurable business results, in Arabic and English.
 
-Here are some ideas to get you started:
+## Results
+- 200M+ organic views and audiences of 100K+ followers across healthcare, real estate, tourism, retail and lifestyle
+- 20,000+ Instagram followers in under 60 days with zero ad spend (ORAS General Trading)
+- 1.1M+ Instagram views from 7 Reels, one Reel above 500,000 views
+- 3M+ organic views in 3 months for agency clients (FamLab Agency)
+- 500% increase in client sales and 1,000+ tourism bookings through content-led growth
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## What I do
+- Social media strategy, content calendars and campaign planning
+- Short-form video: scripting, filming, editing, publishing
+- Community management and client communication
+- Performance reporting and optimization
+
+## Work
+- Digital Marketing & Content Director, FamLab Agency (Dubai), 2024 - present
+- Social Media Account Manager & Content Strategist, freelance (Dubai), 2024 - present
+- Account Manager & Content Creator, The Mayor Agency (Dubai), 2022 - 2024
+
+## Contact
+- LinkedIn: https://www.linkedin.com/in/mohamed123ali/
+- Email: ma7amed.3lii@gmail.com
+- Portfolio: https://ma7amed3lii.tabbio.com
